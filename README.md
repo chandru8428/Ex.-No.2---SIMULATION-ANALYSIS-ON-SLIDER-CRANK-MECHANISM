@@ -46,7 +46,7 @@
 ![image](https://github.com/user-attachments/assets/c81bf24f-5681-4080-b5fb-9e9766061194)
 
 
-### Name:CHANDRU K
+### Name:CHANDRU.K
 ### Register Number: 212224220017
 
 ## RESULT:
